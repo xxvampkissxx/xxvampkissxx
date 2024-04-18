@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: anything.
 - 📫 How to reach me: dm me!
 - 😄 Pronouns: he/they
-- ⚡ Fun fact: i have red hair!
+- ⚡ Fun fact: i have red hair! (im a f3mb01!)
 
 <!---
 xxvampkissxx/xxvampkissxx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
